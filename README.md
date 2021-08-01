@@ -5,9 +5,11 @@
 * ⚡️ haze#1337
 ---
 
-## Playlists
-Ja, ich höre über YouTube Musik. Ich verwende YouTube Premium, daher habe ich keine Einschränkungen oder nervige Werbeunterbrechungen. 
+## Fav. Songs ( ͡° ͜ʖ ͡°)
+Meine Lieblingslieder. Und ja, ich höre über YouTube Musik, da ich das Premium-Abo besitze :)
 
-* [h a p p y (almost)](https://youtube.com/playlist?list=PLA918_97aRK8oJ6ILgVFfrYE_erGjUxye)
+* 1 | [ID 20](https://youtu.be/qYm7SLnPZWQ)
+* 2 | [ID 17](https://youtu.be/PPutRXXWe-Q)
+* 3 | [ID 18](https://youtu.be/3Q6gxGBZ9mk)
 
 ---
