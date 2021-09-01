@@ -5,11 +5,11 @@
 * ⚡️ haze#1337
 ---
 
-## Fav. Songs ( ͡° ͜ʖ ͡°)
+## Letzte (Github) Uploads ( ͡° ͜ʖ ͡°)
 Meine Lieblingslieder. Und ja, ich höre über YouTube Musik, da ich das Premium-Abo besitze :)
 
-* 1 | [ID 20](https://youtu.be/qYm7SLnPZWQ)
-* 2 | [ID 17](https://youtu.be/PPutRXXWe-Q)
-* 3 | [ID 18](https://youtu.be/3Q6gxGBZ9mk)
+* 1 | [Hyperjo.de - Source Code](https://github.com/haze0001/hyperjo.de)
+* 2 | [Coming Soon](https://github.com/haze0001)
+* 3 | [Coming Soon](https://github.com/haze0001)
 
 ---
